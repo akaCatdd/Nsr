@@ -8,15 +8,3 @@
 ![500](assets/Yamaha%202021%20Rossi%20版花/image2.jpg)
 
 ![500](assets/Yamaha%202021%20Rossi%20版花/image3.jpg)
-
-![500](assets/Yamaha%202021%20Rossi%20版花/image4.jpg)
-
-![500](assets/Yamaha%202021%20Rossi%20版花/image5.jpg)
-
-![500](assets/Yamaha%202021%20Rossi%20版花/image6.jpg)
-
-![500](assets/Yamaha%202021%20Rossi%20版花/image7.jpg)
-
-![500](assets/Yamaha%202021%20Rossi%20版花/image8.jpg)
-
-ok
