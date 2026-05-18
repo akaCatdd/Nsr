@@ -15,13 +15,13 @@
 下面是本年度版花的设计效果：
 
 #### 设计 1
-![Yamaha 2021 Rossi 版花设计1](assets/Yamaha\ 2021\ Rossi\ 版花/image1.jpg)
+![500](assets/Yamaha%202021%20Rossi%20版花/image1.jpg)
 
 #### 设计 2
-![Yamaha 2021 Rossi 版花设计2](assets/Yamaha\ 2021\ Rossi\ 版花/image2.jpg)
+![500](assets/Yamaha%202021%20Rossi%20版花/image2.jpg)
 
 #### 设计 3
-![Yamaha 2021 Rossi 版花设计3](assets/Yamaha\ 2021\ Rossi\ 版花/image3.jpg)
+![500](assets/Yamaha%202021%20Rossi%20版花/image3.jpg)
 
 ---
 
