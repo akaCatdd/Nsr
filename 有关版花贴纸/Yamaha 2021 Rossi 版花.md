@@ -43,3 +43,20 @@
   <small>*Team: Yamaha (The speed blocks of dreams)*</small>
 - **特别意义**：猴王在 MotoGP 赛道上的最后一舞，且看且珍惜！
   <small>*Special Significance: The Doctor's last dance in MotoGP. Watch, admire, and maybe shed a tiny tear.*</small>
+
+---
+
+## 👑 传奇谢幕：黄衣少年的史诗级生涯 (The Doctor's Legendary Legacy)
+<small>*A quick salute to the greatest to ever swing a leg over a racing motorcycle:*</small>
+
+- **数字背后的绝对统治力** 🏆
+  横跨 26 个赛季，夺得 9 个世界冠军头盔（完成 125cc, 250cc, 500cc 和 MotoGP 所有级别通关大满贯），收割了 115 次分站冠军，以及前无古人（估计也后无来者）的 235 次登上领奖台。这逆天的战绩，就算是打游戏开挂都不一定能打得出来！
+<small>*Let's talk numbers: 26 seasons, 9 World Championships (completing the sweep across 125cc, 250cc, 500cc, and MotoGP), 115 Grand Prix wins, and a mind-boggling 235 podium finishes. Even if you were playing a video game with cheat codes, you'd struggle to put up stats this glorious!*</small>
+
+- **把 46 号刻进摩托车 DNA 的男人** 4️⃣6️⃣
+  他是唯一一个把“荧光黄 46 号”变成全球车迷信仰图腾的人。罗西经历了二冲程 500cc 猛兽的咆哮，迎来了四冲程 990cc、800cc 和 1000cc 的赛道科技大巨变。流水的强敌，铁打的猴王，从老将比亚吉一路战到年轻的马奎斯，他一个人就是一部现代 MotoGP 的编年史。
+<small>*The man who burned the bright yellow #46 into the hearts of race fans worldwide. He rode through the roaring era of 2-stroke 500cc beasts, and survived the technological shifts of 4-stroke 990cc, 800cc, and 1000cc eras. Rivals came and went, but Rossi remained eternal, battling everyone from Max Biaggi to Marc Marquez. The man is literally a living encyclopedia of MotoGP.*</small>
+
+- **无猴王，不 GP** 🛵
+  比起那些只知道刷圈速的“夺冠无情机器”，罗西把幽默、狂放、戏剧性和人情味带到了赛车世界。经典的“套圈后路边找厕所”、赛后亲吻战车、以及数不清的搞怪头盔版花——他凭一己之力把摩托车赛车运动带向了全世界。即使他已退役多年，赛道旁的观众席上依然会雷打不动地亮起那片金黄色的“VR46 海洋”。
+<small>*Unlike some soulless, emotionless racing robots who only care about trophies, Rossi brought humor, flamboyance, drama, and pure soul to the paddock. From his famous "toilet break" celebration to kissing his M1 and rocking crazy helmet designs, he single-handedly dragged a niche sport into the global spotlight. Even though he has hung up his leathers, the grandstands will forever shine with a sea of VR46 yellow.*</small>
