@@ -5,7 +5,7 @@
 新的一年又悄悄摸摸地来了，赶紧把今年的新拉花整上！无他，唯手熟尔，顺便致敬一下**猴王（Valentino Rossi）职业生涯的谢幕之作**。
 <small>*Another year has snuck up on us, so of course, it's time to slap on this year's new livery! No big deal, just flexing my sticker skills while paying tribute to **the Doctor's final curtain call in MotoGP**. Let's go!*</small>
 
-贴纸老地方见，直接去闲鱼找 aka370 买就完事了。
+#### 贴纸老地方见，直接去闲鱼找 aka370 买就完事了。
 <small>*Decals are available at the usual spot—just hit up the legendary seller aka370 on Xianyu.*</small>
 
 > **Grazie Vale!** 🏁
