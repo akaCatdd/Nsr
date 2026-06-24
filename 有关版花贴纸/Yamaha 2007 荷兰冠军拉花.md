@@ -2,7 +2,7 @@
 ## 2024年的得意之作！ 🛠️
 <small>*My Proud Work of 2024! 🛠️*</small>
 
-#### 贴纸老地方见，直接去闲鱼找 aka370 买就完事了。
+#### 贴纸老地方见，直接去闲鱼找 aka370 买就完事了。[点击直达](https://m.tb.cn/h.RIH8bGA?tk=wPhhgiZ6qSJ )
 <small>*Decals are available at the usual spot—just hit up the legendary seller aka370 on Xianyu.*</small>
 
 不知不觉，这已经是玩 NSR 的第五个年头了（钱包表示很淦）。

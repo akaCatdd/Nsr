@@ -5,7 +5,7 @@
 当时我们一路玩到了年底，万万没想到，披着 63 号战袍的 Pecco Bagnaia 居然真的上演了惊天大逆转，捧回了年度总冠军！这真是一个不可思议又特别美好的赛季~
 <small>*We kept tuning and riding all the way to the end of the year, and lo and behold, #63 Pecco Bagnaia actually pulled off a miracle comeback to snatch the World Championship! It was a completely mind-blowing and beautiful season~*</small>
 
-#### 贴纸老地方见，直接去闲鱼找 aka370 买就完事了。
+#### 贴纸老地方见，直接去闲鱼找 aka370 买就完事了。[点击直达](https://m.tb.cn/h.Rrag4lp?tk=yS6cgiZUHxS)
 <small>*Decals are available at the usual spot—just hit up the legendary seller aka370 on Xianyu.*</small>
 
 ### 小人贴纸位置及参考
