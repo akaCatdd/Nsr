@@ -1,87 +1,86 @@
 
-#### 1.头盔选择 闲鱼 aka370 的 预喷黑漆版本（原厂也能贴，效果差点意思）
-#### Step 1: Helmet Selection - Go with the pre-sprayed matte black version from Xianyu seller aka370 (Stock helmet works too, but the final look is a bit... meh).
+#### 1. 搞定装备的第一步：头盔选择 ⛑️
+#### Step 1: Gear up! Picking the right helmet ⛑️
+建议直接上闲鱼 aka370 的“预喷黑漆版本”。虽说原厂漆面也能贴，但贴完的效果嘛……大概就是卖家秀与买家秀的差别，懂得都懂！
+We highly recommend snagging the "pre-sprayed matte black paint version" from Xianyu seller aka370. Sure, you *could* slap them onto the stock helmet, but the final aesthetic might end up looking like a tragic "expectation vs. reality" meme.
 
-头盔+贴纸 图示如下
-Helmet + stickers preview as shown below:
+头盔与贴纸合体前的“证件照”：
+The "passport photo" before the helmet and stickers merge into a masterpiece:
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624165548089.png)
 
 
-#### 2.先贴大的 monster 标 和两侧的 agv 标
-#### Step 2: Slap on the giant Monster energy claws first, then the AGV decals on both sides.
+#### 2. 先上大Logo，气势搞起来！
+#### Step 2: Big logos first - Build the hype!
+首先把醒目的 Monster 爪子标贴好，接着搞定两侧的 AGV 标志。
+Slap on the giant Monster energy claws first, then secure the AGV decals on both sides.
 
-图示如下
-Behold the layout:
+预览效果如下：
+Here is how it should look:
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624165836515.png)
 
 
-#### 3.贴agv 后面的 小人
-#### Step 3: Stick the little mascot dude right behind the AGV logo.
-
-图示如下 我得这个agv 有点贴歪了 应该底部 与 头盔底部 平齐
-Visual guide below. By the way, my AGV decal ended up a bit crooked... Do as I say, not as I do: the bottom edge should align perfectly with the bottom of the helmet!
+#### 3. 贴上 AGV 标志后面的小人儿 🏃‍♂️
+#### Step 3: Paste the little mascot behind the AGV logo 🏃‍♂️
+如图所示，不过我这个 AGV 标贴得有点歪……别学我，它的底部应该跟头盔边缘完全平齐才对！
+Visual guide below. By the way, my AGV decal ended up a bit crooked... Learn from my failure: the bottom edge should align perfectly with the helmet's bottom rim!
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624165954535.png)
 
 
-#### 4.贴最后的 46 标 
-#### Step 4: Slap on the legendary #46 logo.
-
-图示如下 我这个贴的有点靠上了 
-Like this. I pasted mine a bit too high... but hey, nobody's perfect.
+#### 4. 信仰加持：贴上 46 号标！
+#### Step 4: Time for the ultimate #46 faith buff!
+如图所示，我贴的时候手抖了一下，稍微偏高了。大家引以为戒！
+Like this. I pasted mine a bit too high... standard rookie mistake, so keep yours slightly lower.
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624170113070.png)
 
 
-#### 5.贴乌龟正中间的三块 和 尾巴
-#### Step 5: Stick the three center shell pieces and the cute little tail.
-
-图示如下 眼睛卡在镜片区 鼻孔漏在外面 然后 顺序 贴后面的龟壳，紧凑点 整齐点，我这里就太松散了 hhh
-See below: the eyes should align with the visor boundary, with the nostrils left exposed. Next, stick the rear shell pieces in order. Keep them tight and neat! Mine is way too loose—looks like the poor turtle is stretching, haha.
+#### 5. 核心主角登场：贴乌龟壳和尾巴 🐢
+#### Step 5: The star of the show - Turtle shell and tail 🐢
+眼睛要恰好卡在镜片区边缘，鼻孔露出来。然后顺着往后贴龟壳，尽量贴得紧凑、整齐一点。我贴得实在是太松散了，感觉乌龟像是在做拉伸运动，哈哈哈。
+The eyes should sit right on the visor boundary, with the nostrils left exposed. Next, apply the shell pieces in sequence towards the back. Keep them tight and neat! Mine is way too loose—looks like the poor turtle is doing pilates, haha.
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624170222690.png)
 
-后面看如下 应该更紧凑些 小尾巴往前点~
-Back view: it really should be tighter, and that little tail needs to nudge forward a bit!~
+从屁股后面看是这样的，应该贴得更紧凑一些，小尾巴再往前面挤挤~
+Rear view: It really should be tighter, and nudge that cute little tail forward a bit!~
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624170442163.png)
 
 
-#### 6.贴乌龟前后爪
-#### Step 6: Stick the turtle's front and back paws.
+#### 6. 最后的四肢：贴前后爪 🐾
+#### Step 6: Paw patrol - Front and back paws 🐾
+贴法是：先贴两个爪子中间的装饰，接着贴前爪、后爪，最后拉上蓝线（多余的蓝线剪掉即可）。贴完一侧后，以同样的步骤把对称的另一侧也搞定。
+Proper technique: Apply the decorative piece between the paws first, then front paw, back paw, and run the blue line. Snip off any excess blue line~ Then mirror the exact same process on the opposite side.
 
-图示如下 应该是先贴 两个爪子中间的 装饰 然后贴 前爪 后抓 和 蓝线 ，剪掉多余的蓝线~ 然后对称的另一面也贴好。
-Like this: standard procedure is to stick the decorative piece between the paws first, then the front paw, back paw, and the blue line. Snip off any excess blue line~ Then mirror the whole process on the other side.
-
-我只是展示顺序，大家意会就好 ，**看这一侧的 agv 就是正确的**~
-I'm just showing the order here, so get the general idea. **But seriously, look at the AGV logo on this side—spot on!**~
+我这儿主要给大家展示下大致顺序，领会精神就好！**顺便瞧瞧这一侧的 AGV，贴得简直完美！**~
+I'm just demonstrating the general order here, so get the vibe. **But hey, take a look at the AGV logo on this side—absolutely flawless!**~
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624170559708.png)
 
-都贴好后 从上面看效果 如下
-Once everything is pasted, the top view looks like this:
+全部贴好后，从天顶视角俯瞰的效果如下：
+Once everything is in place, the aerial view looks like this:
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624170852602.png)
 
 
-#### 6.ok 最后一步！贴头盔风镜
-#### Step 7 (Wait, another step 6? Let's call it final step!): Visor sticker time!
+#### 7. 最后一击！贴上头盔风镜贴 🏁
+#### Step 7: The Grand Finale - Visor decal time! 🏁
+把贴纸稳稳地招呼到风镜位置，大功告成！
+Slap that visor sticker right onto the visor area, and you are done!
 
-把风镜贴在头盔风镜位置！大功告成！
-Stick the visor sticker right onto the visor area! Boom, done!
-
-我这个展示 前后贴了10分钟，其实你会发现，只要把贴纸都招呼上，效果就很惊人！~~
-This showcase took me only about 10 minutes from start to finish. Honestly, you'll find that once all the stickers are slapped on, the result is absolutely jaw-dropping!~~
+我这套展示前后也就花了十分钟。其实你贴了就会发现，只要有耐心把贴纸都招呼上去，最终效果都非常惊艳！~~
+This whole project took me only about 10 minutes. Honestly, you'll realize that as long as you just get all the stickers on there, the final look is absolutely jaw-dropping!~~
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624171024884.png)
 
-换个角度，惊人的效果~
-Let's view it from another angle—simply majestic~
+换个角度欣赏，这扑面而来的帅气~
+Let's view it from another angle—pure, unadulterated coolness~
 
 ![](assets/【头盔】VR46%20Rossi%20罗西小乌龟贴纸顺序/file-20260624171201209.png)
 
 
-【完】感谢欣赏
-the end ;)
+【完】感谢大家捧场！祝大家骑行安全！
+【The End】Thanks for watching! Ride safe, look cool! ;)
