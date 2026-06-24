@@ -2,7 +2,7 @@
 #### 1. 搞定装备的第一步：头盔选择 ⛑️
 <small>*Step 1: Gear up! Picking the right helmet ⛑️*</small>
 
-建议直接上闲鱼 aka370 的“预喷黑漆版本”。虽说原厂漆面也能贴，但贴完的效果嘛……大概就是卖家秀与买家秀的差别，懂得都懂！
+#### 贴纸和头盔 建议直接上闲鱼 aka370 的“预喷黑漆版本”。虽说原厂漆面也能贴，但贴完的效果嘛……大概就是卖家秀与买家秀的差别，懂得都懂！
 <small>*We highly recommend snagging the "pre-sprayed matte black paint version" from Xianyu seller aka370. Sure, you *could* slap them onto the stock helmet, but the final aesthetic might end up looking like a tragic "expectation vs. reality" meme.*</small>
 
 头盔与贴纸合体前的“证件照”：
