@@ -25,8 +25,8 @@
 | **车身版花** <br><small>*Bike Livery*</small>  | [Yamaha 2021 Rossi 版花](有关版花贴纸/Yamaha%202021%20Rossi%20版花.md)                              | 致敬猴王在雅马哈最后一年的 GP 生涯 <br><small>*Paying tribute to the Doctor's final MotoGP season with Yamaha.*</small>                     |
 | **车身版花** <br><small>*Bike Livery*</small>  | [Yamaha 2007 荷兰冠军拉花](有关版花贴纸/Yamaha%202007%20荷兰冠军拉花.md)                                    | 罗西 2007 荷兰分站冠军（小清新粉蓝菲亚特500版花） <br><small>*Rossi's 2007 Dutch GP winner livery (Retro pastel Fiat 500 theme).*</small>        |
 | **车身版花** <br><small>*Bike Livery*</small>  | [Ducati 2022 No.63 冠军贴纸](有关版花贴纸/Ducati%202022%20No.63%20冠军贴纸.md)                          | 2022 年 Pecco Bagnaia 逆天大逆转夺冠版花设计 <br><small>*2022 champion Pecco Bagnaia's legendary comeback livery.*</small>               |
-| **头盔贴纸** <br><small>*Helmet Decal*</small> | [VR46 Rossi 罗西小乌龟贴纸](有关版花贴纸/【头盔】VR46%20Rossi%20罗西小乌龟贴纸.md)                                | 2013 年主场自嘲“太慢了”的小乌龟经典头盔贴纸 <br><small>*The iconic "Tartaruga" self-deprecating helmet decal from Mugello 2013.*</small>       |
-| **头盔贴纸** <br><small>*Helmet Decal*</small> | [2025 NO.93 Marc Marquez 冠军头盔贴纸](有关版花贴纸/【头盔】2025%20NO.93%20Marc%20Marquez%20%20冠军头盔贴纸.md) | 马奎斯 2025 年加入杜卡迪厂队首夺总冠军纪念头盔贴纸 <br><small>*Marc Marquez's 2025 championship victory helmet decal with factory Ducati.*</small> |
+| **头盔贴纸** <br><small>*Helmet Decal*</small> | [VR46 Rossi 罗西小乌龟贴纸](%E6%9C%89%E5%85%B3%E7%89%88%E8%8A%B1%E8%B4%B4%E7%BA%B8/%E3%80%90%E5%A4%B4%E7%9B%94%E3%80%91VR46%20Rossi%20Tartaruga%20%E7%BD%97%E8%A5%BF%E5%B0%8F%E4%B9%8C%E9%BE%9F%E8%B4%B4%E7%BA%B8.md)                                | 2013 年主场自嘲“太慢了”的小乌龟经典头盔贴纸 <br><small>*The iconic "Tartaruga" self-deprecating helmet decal from Mugello 2013.*</small>       |
+| **头盔贴纸** <br><small>*Helmet Decal*</small> | [2025 NO.93 Marc Marquez 冠军头盔贴纸](%E6%9C%89%E5%85%B3%E7%89%88%E8%8A%B1%E8%B4%B4%E7%BA%B8/%E3%80%90%E5%A4%B4%E7%9B%94%E3%80%912025%20NO.93%20Marc%20Marquez%20%20%E5%86%A0%E5%86%9B%E5%A4%B4%E7%9B%94%E8%B4%B4%E7%BA%B8.md) | 马奎斯 2025 年加入杜卡迪厂队首夺总冠军纪念头盔贴纸 <br><small>*Marc Marquez's 2025 championship victory helmet decal with factory Ducati.*</small> |
 
 
 ---
